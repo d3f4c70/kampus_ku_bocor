@@ -1,5 +1,6 @@
 # kampus_ku_bocor
 Karena ratusan mahasiswa yang turun ke aksi tidak didengar, ya sudahlah, bolehkah saya membantu? :)
+created : July, 5 2017 00:05 (Waktu Indonesia Bercanda)
 
 
 # Note to my self: 
