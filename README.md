@@ -3,7 +3,7 @@ Karena ratusan mahasiswa yang turun ke aksi tidak didengar, ya sudahlah, bolehka
 
 
 # Note to my self: 
-saya jujur tidak ingin membuat nama kampus tercinta ku tercoreng, tujuan ku hanya satu. Pendidikan adalah hak semua mahasiswa entah kaya atau miskin. Data yang transparan. Jika ada pihak yang tidak terima email saya im.d3f4c70@protonmail.com. Terimakasih.
+saya jujur tidak ingin membuat nama kampus tercinta ku tercoreng, tujuan ku hanya satu. Pendidikan adalah hak semua mahasiswa entah kaya atau miskin. Data yang transparan. Jika ada pihak yang tidak terima email saya im.d3f4c70@protonmail.com. Follow my instagram for mooooooreee update @d3f4c70 Terimakasih. 
 
 
 # Penting
