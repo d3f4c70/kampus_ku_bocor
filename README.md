@@ -9,3 +9,9 @@ saya jujur tidak ingin membuat nama kampus tercinta ku tercoreng, tujuan ku hany
 # Penting
 data dibawah adalah benar benar data yang berhasil diambil (bocor) dari situs resmi akademik.unnes.ac.id. Boleh percaya boleh tidak.
 
+# Hot Issue
+- kkn berbayar
+- banding ukt
+- bidikmisi
+
+let's dig more deeper, data will shown really soon 
